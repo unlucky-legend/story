@@ -29,7 +29,7 @@ Address：	China , guangdong , guangzhou , haizhuqu , wanshou road nanerjie , 6 
 
 victim Human：
 Name：	ChenZhouLong
-Tel：	13533863284
+Tel：	+86 13533863284
 QQ：	723374363
 Mail：	jyuumoutora@gmail.com
 ============================================================
@@ -59,7 +59,7 @@ Mail：	jyuumoutora@gmail.com
 
 受害的人类：
 姓名：	陈洲龙
-手机：	13533863284
+手机：	+86 13533863284
 QQ：	723374363
 Mail：	jyuumoutora@gmail.com
 ============================================================

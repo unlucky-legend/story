@@ -1,14 +1,16 @@
 # story
 story
 ============================================================
-International Mission .
+International Ghost Mission .
 ============================================================
 Hello , do you know who can slove the problem : [bad ghost tach on the human body] ?
 
 This [ghost] is invisible to human beings, but sometimes it can be seen as a dark shadow by others.
 It need to delete this criminal [ghost] from the earth .
 
-The [ghost] ability: [cosmic planet level super long-distance] force anyone to hear [auditory hallucinations] and see [illusion].
+The [ghost] ability: [cosmic planet level super long-distance] force anyone to hear [auditory hallucinations] and 
+
+see [illusion].
 It will make anyone : temporarily insane, and then lose life.
 
 May I ask if any of your staff has a method, or use high-tech means,
